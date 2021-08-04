@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gabethe3Dmodelmaker
+- 👀 I’m interested in Making 3D Models and Tech & Computers
+- 🌱 I’m currently learning how to make 3D Models
+- 💞️ I’m looking to collaborate on Tech & 3D Model Making
+- 📫 How to reach me Discord: vexo🎸♡ | 𝔦 ♡ ᏦᎥᏕᏕ#1973
